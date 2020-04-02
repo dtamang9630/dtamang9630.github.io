@@ -1,5 +1,5 @@
 
-Just created a new website, 
-K cha hajur? New Web application developed by DhanRaj coming soon.
-
+Namaste!!!
+K cha hajur? New Web/mobile application Under Construction,
+coming soon. 
 
