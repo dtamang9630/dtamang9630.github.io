@@ -1,3 +1,5 @@
-# dtamang9630.github.io
-How are you Pramod sir and Ganesh Sir.
+
+Just created a new website, 
+K cha hajur? New Web application developed by DhanRaj coming soon.
+
 
